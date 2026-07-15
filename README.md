@@ -1,2 +1,1 @@
-About
-The Hearth-My Home
+About The Hearth-My Home
